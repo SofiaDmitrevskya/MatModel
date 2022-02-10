@@ -4,3 +4,5 @@ Never gonna run around and desert you
 Never gonna make you cry
 Never gonna say goodbye
 Never gonna tell a lie and hurt you
+
+Special song for everyone who knows me!
